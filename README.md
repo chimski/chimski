@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @chimski
+- 👀 I’m interested in kpop
+- 🌱 I’m currently learning in grade 10 in sri Lanka
+- 📫 How to reach me - send me an email on senadhithimanya@gmail.com
